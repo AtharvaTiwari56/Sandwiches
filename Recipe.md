@@ -8,4 +8,10 @@
 
 5. Brush 1/2 tsp of butter evenly over it.
 
-6. Heat a non-stick griddle, put 1/2 tsp of butter for cooking and place the sandwich on it with the buttered side facing upwards.
+6. Heat a non-stick griddle, put 1/2 tsp of butter for cooking and place the sandwich on it with the buttered side facing upwards and cook on a medium flame till it turns golden brown in color from both the sides.
+
+7.Cut the sandwich diagonally into 2 equal portions.
+
+8. Repeat steps 2 to 7 to make 3 more sandwiches.
+
+9. Your sandwiches are ready to be served!

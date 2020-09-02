@@ -15,3 +15,17 @@
 8. Repeat steps 2 to 7 to make 3 more sandwiches.
 
 9. Your sandwiches are ready to be served!
+
+To make stuffing:
+
+1. To make the stuffing take finely chopped onions in a deep bowl.
+
+2. Now add finely chopped tomatoes.
+
+3. Then add finely chopped coriander. Since we are making a quick and easy sandwich, we have used minimum veggies. You can add as per availability and your liking.
+
+4. Furthermore, add grated processed cheese. Mozarella,   cottage cheese and cheddar also work as amazing substitutes.
+
+5. For seasoning, add chilli powder, coriander powder, cumin seeds powder and salt to taste. Adjust as per your preference.
+
+6. Mix well and your sandwich stuffing is ready.
